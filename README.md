@@ -2,7 +2,7 @@
 - 👀 I’m interested in Minecraft
 - 🌱 I’m currently learning how to use bots on discord
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me Discord Rinxoxo#2335
+- 📫 How to reach me Discord rinisgay#2335
 
 <!---
 ItzMitsui is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
